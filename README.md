@@ -1,0 +1,1 @@
+# suicidiodata2022
